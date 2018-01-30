@@ -4,3 +4,5 @@ hey guys!!!! welcom to my jb website!!! in a few days i'm gonna be dropping my N
 
 jb for life!!! peace out!!!
 nooka the ultra hacker
+
+btw i'm 5 years old xD
